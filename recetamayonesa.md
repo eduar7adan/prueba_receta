@@ -1,4 +1,4 @@
-# RECETA DE LA MAYONESA
+# RECETA DE LA MAYONESA----NOOO _____ALIOLI_____
 
 ## Ingredientes
 
@@ -7,6 +7,7 @@
 sal
 vinagre
 peregil
+ajo
 
 Debemos batir con mucha alegria 
 
